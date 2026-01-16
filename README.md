@@ -1,0 +1,1 @@
+# OlmazorAKM_rasmiy
